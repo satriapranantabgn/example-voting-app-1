@@ -1,2 +1,1 @@
-aku sayang kamu
-balas anjing
+tai
